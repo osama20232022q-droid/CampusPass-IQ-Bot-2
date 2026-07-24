@@ -1,1 +1,0 @@
-# CampusPass-IQ-Bot-2
